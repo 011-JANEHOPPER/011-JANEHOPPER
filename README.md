@@ -1,6 +1,6 @@
 ## Bitchin' right? 😗
 
-#Do not inspo/copy any of my ponies
+# Do not inspo/copy any of my ponies
 
 My name's Meivina; Mei for short.
 
